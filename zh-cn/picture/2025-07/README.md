@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2025-07)
-![](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg&w=1000)Today: [塞切达，多洛米蒂山��的山峰，南蒂罗尔，意大利 (© Kalyakan/Adobe Stock)](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg&w=1000)Today: [塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利 (© Kalyakan/Adobe Stock)](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-07-08 [download 4k](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-07-08 [download 4k](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-07-07 [download 4k](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
